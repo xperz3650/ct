@@ -1,0 +1,7 @@
+25022134
+
+Nguyen Van Dung
+
+K70E-EC2
+
+2526II_UET.COM1050_22
